@@ -1,0 +1,4 @@
+# LEI Nº. 6.873 MACEIÓ/AL, 25 DE JANEIRO DE 2019.
+PROJETO DE LEI Nº 7.247/2018.
+Projeto de Lei nº 72/2018 AUTOR: VER. ANIVALDO (LOBÃO) INCLUI, NO CALENDÁRIO OFICIAL DO MUNICÍPIO, O "MACEIÓ MOTO FEST.
+O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
