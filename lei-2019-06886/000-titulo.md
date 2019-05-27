@@ -1,0 +1,4 @@
+# LEI Nº. 6.886 MACEIÓ/AL, 24 DE MAIO DE 2019.
+PROJETO DE LEI Nº. 7.269/2019.
+Projeto de Lei nº. 06-2019 AUTOR: VEREADOR ANA HORA DISPÕE SOBRE A CRIAÇÃO DO DIA MUNICIPAL DO PORTEIRO E DÁ OUTRAS PROVIDÊNCIAS.
+O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
