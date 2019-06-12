@@ -1,0 +1,4 @@
+# LEI Nº. 6.893 MACEIÓ/AL, 11 DE JUNHO DE 2019.
+PROJETO DE LEI Nº. 7.280/2019.
+Projeto de Lei nº. 14/2019 Autor: VER. FRANCISCO SALES CONSIDERA DE UTILIDADE PÚBLICA O INSTITUTO DESENVOLV/AL.
+O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
