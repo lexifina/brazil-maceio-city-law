@@ -1,0 +1,4 @@
+# LEI Nº. 6.919 MACEIÓ/AL, 15 DE JULHO DE 2019.
+PROJETO DE LEI Nº. 7.192/2018.
+Projeto de Lei nº. 211/2018 AUTOR: VER. TEREZA NELMA INSTITUI A "SEMANA MUNICIPAL DE PESSOA COM DEFICIÊNCIA".
+O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
