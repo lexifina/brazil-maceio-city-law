@@ -1,0 +1,2 @@
+# LEI Nº. 6.926 MACEIÓ/AL, 21 DE AGOSTO DE 2019 PROJETO DE LEI Nº. 7.300/2019 Projeto de Lei nº. 103/2019 AUTOR: PODER EXECUTIVO MUNICIPAL ALTERA DENOMINAÇÃO DE LOGRADOURO.
+O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
