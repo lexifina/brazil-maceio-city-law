@@ -1,0 +1,3 @@
+# LEI Nº. 6.958 MACEIÓ/AL, 11 DE DEZEMBRO DE 2019.
+PROJETO DE LEI Nº. 7.367/2019 Projeto de Lei nº. 166/2019 AUTOR: PODER EXECUTIVO MUNICIPAL ALTERA O ART. 1º DA LEI Nº. 6.951 DE 21 DE NOVEMBRO DE 2019.
+O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
