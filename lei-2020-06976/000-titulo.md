@@ -1,0 +1,3 @@
+# LEI Nº. 6.976 MACEIÓ/AL, 10 DE JANEIRO DE 2020.
+PROJETO DE LEI Nº 7.377/2019 Projeto de Lei Nº 146/2019 Autor: VER. GEOBETO OMENA CONSIDERA DE UTILIDADE PÚBLICA A ASSOCIAÇÃO SIRI NA LATA.
+O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
