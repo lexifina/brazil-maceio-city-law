@@ -1,0 +1,2 @@
+# LEI Nº. 7.001 MACEIÓ/AL, 07 DE DEZEMBRO DE 2020.
+PROJETO DE LEI Nº. 7.405 PROJETO DE LEI Nº. 161/2019 AUTOR: VER. LUCIANO MARINHO DÁ DENOMINAÇÃO O PREFEITO DO MUNICÍPIO DE MACEIÓ, Faço saber que a Câmara Municipal de Maceió decreta e eu sanciono a seguinte Lei:
