@@ -1,0 +1,9 @@
+{
+  "path": "br-al-maceio",
+  "code": "BR-AL-MACEIO",
+  "name": "Maceió (city)",
+  "level": "municipality",
+  "parent": "br-al",
+  "repo": "https://github.com/lexifina/brazil-maceio-city-law",
+  "build": "built: the Lei Orgânica and the municipal Leis of Maceió, from the Câmara Municipal de Maceió"
+}
